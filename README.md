@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @Flodnarb
-- 👀 I’m interested in ...Girls
+- 👀 I’m interested in ...Girls jk, Computer, Philosophy, Theology, Science and Astrophysics
 - 🌱 I’m currently learning ...Programming, Philosophy, Theology and Science
 - 💞️ I’m looking to collaborate on ...
 - 📫 How to reach me ...
